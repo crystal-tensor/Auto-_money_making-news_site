@@ -14,10 +14,17 @@
 
 捐赠支持: 我们接受捐赠，捐赠资金将用于海洋酸性弱化研究和设备购置，帮助保护环境和促进科学研究。
 
-捐赠方式
-我们接受以下捐赠方式：
-
-微信支付
-支付宝
-PayPal
+捐赠方式：
+我们接受以下捐赠方式：微信支付，支付宝，PayPal。
 您的捐赠将对我们的研究和项目发展产生重要影响，感谢您的支持！
+
+微信支付：
+![image](https://github.com/crystal-tensor/Auto-_money_making-news_site/assets/29765585/6e1842c3-f990-4b1a-9172-7952ff25ce27)
+
+支付宝：
+![image](https://github.com/crystal-tensor/Auto-_money_making-news_site/assets/29765585/195d3eca-60fc-43ee-a583-2b95c31e1570)
+
+
+
+
+
