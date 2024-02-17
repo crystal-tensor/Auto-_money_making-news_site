@@ -1,4 +1,4 @@
-Automated Money-Making News Publishing Website
+Automated Make-Money News Publishing Website
 
 自动赚钱新闻发布网站
 
