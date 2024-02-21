@@ -39,6 +39,7 @@ Donation Methods: We accept the following methods of donation: WeChat Pay, Alipa
 捐赠方式：我们接受以下捐赠方式：微信支付，支付宝，PayPal。您的捐赠将对我们的研究和项目发展产生重要影响，感谢您的支持！
 
 PayPal: wavefunction61@gmail.com
+
 WeChat Pay 微信支付）：
 ![image](https://github.com/crystal-tensor/Auto-_money_making-news_site/assets/29765585/6e1842c3-f990-4b1a-9172-7952ff25ce27)
 
