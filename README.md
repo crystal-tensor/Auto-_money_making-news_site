@@ -36,15 +36,9 @@ Donation Support: We accept donations, which will be used for research on ocean 
 
 Donation Methods: We accept the following methods of donation: WeChat Pay, Alipay, PayPal. Your donation will have a significant impact on our research and project development. Thank you for your support!"
 
-捐赠方式：我们接受以下捐赠方式：微信支付，支付宝，PayPal。您的捐赠将对我们的研究和项目发展产生重要影响，感谢您的支持！
+捐赠方式：我们接受以下捐赠方式：微信支付，支付宝，PayPal。您的捐赠将对我们的研究和项目发展产生重要影响，感谢您的支持！需要捐赠请联系微信：765366096
 
-PayPal: wavefunction61@gmail.com
-
-WeChat Pay 微信支付）：
-![image](https://github.com/crystal-tensor/Auto-_money_making-news_site/assets/29765585/6e1842c3-f990-4b1a-9172-7952ff25ce27)
-
-Alipay（支付宝）：
-![image](https://github.com/crystal-tensor/Auto-_money_making-news_site/assets/29765585/195d3eca-60fc-43ee-a583-2b95c31e1570)
+Methods of donation: You can contact me personally on WeChat: 765366096
 
 
 
